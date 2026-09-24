@@ -1,0 +1,1 @@
+[A little idea I had](https://mastodon.social/@timonus/117220945701458404)
